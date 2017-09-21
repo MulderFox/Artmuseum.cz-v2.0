@@ -1,0 +1,1 @@
+# Artmuseum.cz-v2.0
